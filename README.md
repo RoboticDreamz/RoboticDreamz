@@ -20,3 +20,8 @@ So I went to actually learn programming online. Now, I'm trying to make my child
 
 ### What are the projects you're working on?
 As of now, I'm working on a pixel art point-and-click game called  **Patsy n' Crinkles**. Though I'm also working on side projects such as **Why Foxy?** or **Mint Teenz**.
+
+### Why are your pronouns she/her?
+From what I know, gender does not equate to pronouns. Plus despite a trans man, my brain does not respond to other pronouns (it feels like they are referring to someone else rather than me).
+
+Yeah I know it's weird but once my brain got accustomed with something, it'll forever follow that track. Any changes without its explicit approval feels like a train derailing in its tracks.
